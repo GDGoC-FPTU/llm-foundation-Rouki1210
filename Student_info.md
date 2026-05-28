@@ -1,0 +1,4 @@
+- Ho va ten: Nguyen Thanh Vinh
+- Email: vinhnguyenn1902@gmail.com
+- Github: Rouki1210
+- Discord: vinhnguyen#2983
